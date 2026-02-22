@@ -1,7 +1,7 @@
 # Hey, I’m Mosko 👋
 
 I build **AI stuff for efficiency**!
-Co-founder at **OSLO.** • PM at @Docplanner • **data geek** • **LoL player**
+Co-founder at **OSLO.** • PM at @Docplanner • data geek • Industrial Engineer
 
 ---
 
